@@ -1,4 +1,4 @@
-## Bem-vindo ao meu Perfil ( ͡~ ͜ʖ ͡°)
+## Bem-vindo(a) ao meu Perfil  (〜￣▽￣)〜
 
  <div>
    <a href="https://github.com/Takashi_Eiji">
